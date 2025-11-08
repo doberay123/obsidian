@@ -1,1 +1,1 @@
-Jurisdiction of Cases under a court refers to whether a legal officer has the 
+Jurisdiction of Cases under a court refers to whether a legal officer has the ability to dispute, hear or act upon a case. Furthermore, it also refers to whether they have to.
