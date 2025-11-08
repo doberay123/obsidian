@@ -15,5 +15,6 @@ Shebek, Vasilievich and Ivanowich are taking a break from the Melvinski trial in
 
 [[Jurisdiction of Cases]]
 
+Ivanowich looks through a gazette and finds their colleague Ivan Ilych has died. The gazette states:
 
-
+> 
