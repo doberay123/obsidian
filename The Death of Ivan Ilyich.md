@@ -15,6 +15,8 @@ Shebek, Vasilievich and Ivanowich are taking a break from the Melvinski trial in
 
 [[Jurisdiction of Cases]]
 
+In this im
+
 Ivanowich looks through a gazette and finds their colleague Ivan Ilych has died. The gazette states:
 
 "Praskovya Fedorovna Golovina with sorrow announces the death of her beloved husband, Member of the Court of Justice, on the 4th of February 1882. The funeral will occur at 1 o clock Friday in the afternoon."
