@@ -1,0 +1,1 @@
+Jurisdiction of Cases under a court refers to whether a legal officer has the 
