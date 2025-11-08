@@ -21,4 +21,3 @@ Ivanowich looks through a gazette and finds their colleague Ivan Ilych has died.
 
 "Praskovya Fedorovna Golovina with sorrow announces the death of her beloved husband, Member of the Court of Justice, on the 4th of February 1882. The funeral will occur at 1 o clock Friday in the afternoon."
 
-After this annoucement, the colleagues do not mourn 
