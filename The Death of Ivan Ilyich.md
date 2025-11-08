@@ -15,7 +15,7 @@ Shebek, Vasilievich and Ivanowich are taking a break from the Melvinski trial in
 
 [[Jurisdiction of Cases]]
 
-In this im
+By portraying the legal officers as essentially arguing whether they have to do work or not (by exploiting the jurisdiction of cases), Tolstoy portrays those involved as 
 
 Ivanowich looks through a gazette and finds their colleague Ivan Ilych has died. The gazette states:
 
