@@ -11,4 +11,6 @@ Ivan Egorovich Shebek: colleague of Ivan Ilych
 Fedor Vasilievich: colleague of Ivan Ilych
 Peter Ivanowich: colleague of Ivan Ilych
 
-Ivan, Fedor and Peter are taking a break from the Melvinski trial in the Law of Court. They are in Ivan's private room debating over whether they
+Ivan, Fedor and Peter are taking a break from the Melvinski trial in the Law of Court. They are in Ivan's private room debating over whether the Krasovski case is subject to their jurisdiction. 
+
+
