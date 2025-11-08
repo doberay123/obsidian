@@ -2,7 +2,7 @@ tag: #completed
 #### What is Knowledge?
 Is knowledge just information, or is it something deeper. What even is it?
 
-According to google:
+According to Google Dictionary:
 >  facts, information, and skills acquired through experience or education; the theoretical or practical understanding of a subject.
 
 Philosophically though, it holds a different meaning. In fact, it is a full field of philosophy called [[Epistemology]].
